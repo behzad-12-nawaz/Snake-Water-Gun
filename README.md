@@ -1,1 +1,1 @@
-Gmae for fun.
+Game for fun.
